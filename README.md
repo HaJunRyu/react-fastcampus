@@ -1,1 +1,1 @@
-# Preparing for Claa
+# Preparing for Class
